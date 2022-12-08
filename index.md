@@ -1,3 +1,9 @@
+![Skills](https://media.giphy.com/media/l0amJzVHIAfl7jMDos/giphy.gif)
+
+
+
+
+
 # Eric Zito
 
 Short Bio...
